@@ -121,7 +121,7 @@ De har sett Dødens nederlag til slutt                            They have seen
 og likevel vil ei fortvilet trekke seg ut                        and yet they would not in despair retreat,
 har snarere lyren hen til seier stemt                            but oft to victory have tuned the lyre
 og med legenders ild har hjerter tent,                           and kindled hearts with legendary fire,
-den lyser opp Nået og Fortidens mørke og kalde                   illuminating Now and dark Hath-been,
+den lyser opp Nået og Fortider mørke og kalde                   illuminating Now and dark Hath-been,
 med lys fra soler fremmed for alle                               with light of suns as yet by no man seen.
 
 Å gid jeg kunne med skaldene synge så lett                       I would that I might with the minstrels sing
