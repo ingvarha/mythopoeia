@@ -6,7 +6,7 @@ April, 2014
 v0.3
 
 Til han [C.S. Lewis] som sa at myter er usanne, og derfor verdiløse, selv om de er ‘åndet med sølv’.
-
+```
 Fra Philomythus til Misomythus
 
 Du ser på trær men navner kun kontekst                           You look at trees and label them just so,
@@ -170,4 +170,4 @@ De forsetter skape, de er ikke døde                             Be sure they st
 Med panneflamme dikter poeter opp morgenrødet                   and poets shall have flames upon their head,
 spiller på harper dit feilfrie fingre er kalt                   and harps whereon their faultless fingers fall:
 og enhver får velge for alltid fra Alt                          there each shall choose for ever from the All.
-
+```
