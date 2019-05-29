@@ -2,8 +2,8 @@ Mythopeia
 av J.R.R Tolkien, 1931
 
 Til norsk ved Ingvar Hagelund
-April, 2014
-v0.3
+v0.1, april, 2014
+v0.4, mai, 2019
 
 Til han [C.S. Lewis] som sa at myter er usanne, og derfor verdiløse, selv om de er ‘åndet med sølv’.
 ```
