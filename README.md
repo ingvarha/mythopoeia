@@ -115,9 +115,9 @@ de selger sjelen for et kyss atomisk                             forswearing sou
 av en mekanisk nymfe, (og falsk selv den,                        (and counterfeit at that, machine-produced,
 samlebåndsforføring igjen og igjen)                              bogus seduction of the twice-seduced).
 
-Slike øyer langt ute, og enda fagrere ble sagt                   Such isles they saw afar, and ones more fair,
-og de som ennå hører dem, kan ennå ta seg i akt                  and those that hear them yet may yet beware.
-De har sett Døden, og nederlag til slutt                         They have seen Death and ultimate defeat,
+Fjerne øyer så de, stadig fagrere ble det sagt                   Such isles they saw afar, and ones more fair,
+og de som hører dem nå, kan ennå ta seg i akt                    and those that hear them yet may yet beware.
+De har sett Dødens nederlag til slutt                            They have seen Death and ultimate defeat,
 og likevel vil ei fortvilet trekke seg ut                        and yet they would not in despair retreat,
 har snarere lyren hen til seier stemt                            but oft to victory have tuned the lyre
 og med legenders ild har hjerter tent,                           and kindled hearts with legendary fire,
