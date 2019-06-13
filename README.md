@@ -166,8 +166,8 @@ og ikke i Kilden, men i å velge det slemme                      not in the sour
 og ikke i lyden, men i toneløs stemme                           and not in sound but in the tuneless voice.
 I Paradis de ser ei mer forkjært                                In Paradise they look no more awry;
 og skaper aldri nytt med løgn besnært                           and though they make anew, they make no lie.
-De forsetter skape, de er ikke døde                             Be sure they still will make, not being dead,
-Med panneflamme dikter poeter opp morgenrødet                   and poets shall have flames upon their head,
-spiller på harper dit feilfrie fingre er kalt                   and harps whereon their faultless fingers fall:
+For døden er ei her mer i dette landet                          Be sure they still will make, not being dead,
+og dikterne har flammer på sin panne                            and poets shall have flames upon their head,
+de spiller harper der feilfrie fingre blir kalt                 and harps whereon their faultless fingers fall:
 og enhver får velge for alltid fra Alt                          there each shall choose for ever from the All.
 ```
