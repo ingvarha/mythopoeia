@@ -154,7 +154,7 @@ Og kaster ei mitt lille gullsepter fra tronen                   nor cast my own 
 
 I Paradis jeg kanskje blikket vil sende                         In Paradise perchance the eye may stray
 fra å stirre på Dagen som aldri vil ende                        from gazing upon everlasting Day
-til å se dagen skinnende ny over vannet                         to see the day illumined, and renew
+til å se den skinnende ny over vannet                           to see the day illumined, and renew
 fra gåte i speil til bilde av det Sanne.                        from mirrored truth the likeness of the True.
 Ser jeg utover det signede land, fra meg selv:                  Then looking on the Blessed Land 'twill see
 Alt er som det er, men fritt likevel                            that all is as it is, and yet made free:
@@ -168,6 +168,6 @@ I Paradis de ser ei mer forkjært                                In Paradise the
 og skaper aldri nytt med løgn besnært                           and though they make anew, they make no lie.
 For døden er ei her mer i dette landet                          Be sure they still will make, not being dead,
 og dikterne har flammer på sin panne                            and poets shall have flames upon their head,
-de spiller harper der feilfrie fingre blir kalt                 and harps whereon their faultless fingers fall:
+de spiller harper dit feilfrie fingre blir kalt                 and harps whereon their faultless fingers fall:
 og enhver får velge for alltid fra Alt                          there each shall choose for ever from the All.
 ```
