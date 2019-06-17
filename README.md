@@ -152,7 +152,7 @@ Og kaster ei mitt lille gullsepter fra tronen                   nor cast my own 
 
                  *                                                                  *
 
-I Paradis jeg kanskje blikket vil sende                         In Paradise perchance the eye may stray
+I Paradis jeg kanskje blikket vil vende                         In Paradise perchance the eye may stray
 fra å stirre på Dagen som aldri vil ende                        from gazing upon everlasting Day
 til å se den skinnende ny over vannet                           to see the day illumined, and renew
 fra gåte i speil til bilde av det Sanne.                        from mirrored truth the likeness of the True.
