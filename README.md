@@ -15,7 +15,7 @@ du tråkker jorden ned med verdig gange                           you walk the e
 denne vesle sfære blandt de mange:                               one of the many minor globes of Space:
 en stjerne kun en liten stoppet ball                             a star's a star, some matter in a ball
 i evig tvunget matematisk fall                                   compelled to courses mathematical
-midt i den strenge, kalde, tomme dans                            amid the regimented, cold, inane,
+midt i den strenge, viljeløse dans                               amid the regimented, cold, inane,
 der dømte atomer drepes uten stans                               where destined atoms are each moment slain.
 
 Vi kneler foran Viljen (som vi må)                               At bidding of a Will, to which we bend
